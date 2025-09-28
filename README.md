@@ -1,1 +1,0 @@
-This is a  webpage where you can read any manga and novel.
